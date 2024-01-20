@@ -1,4 +1,4 @@
-**20/jan.24**
+**20/jan/24**
 - one last time. to anyone who cares.
 
 **05/oct/23**
